@@ -1,1 +1,1 @@
-<h1>CC18 Fighting</h1>
+<h1>CC18 Keep Fighting</h1>
